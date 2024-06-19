@@ -1,3 +1,3 @@
 how it feels to
 
-![beb5c270da62ce0afd69a579555a0738](https://github.com/syrowonkus/syrowonkus/assets/142924484/5b0d9dfc-e3e4-4603-86f0-c5a1c91d649d)
+![beb5c270da62ce0afd69a579555a0738 (1)](https://github.com/syrowonkus/syrowonkus/assets/142924484/8c3f0c0d-d6d2-4128-b3f4-5e84cfc52a7b)
