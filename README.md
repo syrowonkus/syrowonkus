@@ -1,4 +1,4 @@
 https://rentry.co/seriousdnigrr (not ragebait)
 
+![a7b6e75d8f59fe8e4839a3b8cb56b4fd](https://github.com/user-attachments/assets/48151fe6-4689-4693-bbaf-8e0b0e238cb9)
 
-![3f93cacd427ebfb6818fcf7c8d02bd42](https://github.com/syrowonkus/syrowonkus/assets/142924484/6db860ff-d5a1-42ed-a322-379203a747ad)
